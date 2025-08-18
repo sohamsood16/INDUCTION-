@@ -16,6 +16,6 @@ After this came upo the stage Er.RAVINDER GARG he was the chief guest also the c
 
 Following this we had our class and deparmental visit where Proff. Goldendeep kaur addressed us along with Proff Maninder kaur, they told us about the acedmics of the college and the marking schemes also the sujects we are going to study and many more. Then we visited our labs and after this our day ended on a loving note....
 
-##DAY:- 2
+######DAY:- 2
 
 
