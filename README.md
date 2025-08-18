@@ -16,6 +16,13 @@ After this came upo the stage Er.RAVINDER GARG he was the chief guest also the c
 
 Following this we had our class and deparmental visit where Proff. Goldendeep kaur addressed us along with Proff Maninder kaur, they told us about the acedmics of the college and the marking schemes also the sujects we are going to study and many more. Then we visited our labs and after this our day ended on a loving note....
 
-######DAY:- 2
+###### DAY:- 2
+
+THIS DAY first we had proficiency tests of english and maths from 9:30 to 11:30 and as i am writting this report after some time i have got my results and i have topped in the class i both the tests.
+
+after this we hd break and following that we got a lecture by manish sir and his team from BUDDY4STUDY.COM about the satya scholarship program and i comming from a good background was not applicable for that and this cheme was very benificial for those who are in need. after this we  had an expert lecture delivered by Dr. ARSHDEEP SINGH on "food- a pivotal role in students overall wellness"
+in this lecture he told us about the myths related to food and also encouaged us to eat healthy food so that we are able to manimtain our body and as well as acedmics very well. he cleared that we shoulnot realy on the fast food as our diet infact it should be a part of diet , he asked to take a balanced diet which would help us in our overall growth and would give good results in the future.
+
+
 
 
