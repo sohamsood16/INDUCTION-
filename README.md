@@ -21,7 +21,17 @@ Following this we had our class and deparmental visit where Proff. Goldendeep ka
 THIS DAY first we had proficiency tests of english and maths from 9:30 to 11:30 and as i am writting this report after some time i have got my results and i have topped in the class i both the tests.
 
 after this we hd break and following that we got a lecture by manish sir and his team from BUDDY4STUDY.COM about the satya scholarship program and i comming from a good background was not applicable for that and this cheme was very benificial for those who are in need. after this we  had an expert lecture delivered by Dr. ARSHDEEP SINGH on "food- a pivotal role in students overall wellness"
-in this lecture he told us about the myths related to food and also encouaged us to eat healthy food so that we are able to manimtain our body and as well as acedmics very well. he cleared that we shoulnot realy on the fast food as our diet infact it should be a part of diet , he asked to take a balanced diet which would help us in our overall growth and would give good results in the future.
+in this lecture he told us about the myths related to food and also encouaged us to eat healthy food so that we are able to manimtain our body and as well as acedmics very well. he cleared that we shoulnot realy on the fast food as our diet infact it should be a part of diet , he asked to take a balanced diet which would help us in our overall growth and would give good results in the future. after this we got a lecture by our seniors of the causmic club regarding which laptops we should buy for the engeenering .
+
+###### DAY-3
+
+this day started by the interaction with Dr. JASWINDER SINGH (JASWIN`S). he is govt techer also he has deep knowlenge in sujects of maths and physics he has made his own science and mathematics lab on wheel i his car. he not only gave us the knowledge of the physics and maths he also made us connect to the almighty as he shared his own story of running a small stove business to becoming an awared techer. he had awards from state and national governments. he asked us to focous on one aim and dont look back. this phrase motivated me soo deeply as i generally get distracted by my own thoughts. he made us realise the real meaning of god also it was an interactive session he also taught us how to meditate and get relief from the stress. he said us that we should the work perfectly quality matters not the quantity.
+
+after this we had a converstion with NSET TRUSTEE GURUCHARAN SHINGH GREWAL. i would call this as converstion not a lecture as he told us how he himself got into this college and the years of his struggle of his life in the religiuos fights also he was very happy for enrolling the new batc and also he made us aware about the legacy of this institution. afetr this i felt so blessed to have addmissin in this college 
+
+Following this we had an expert lecture by priya darshani maam about the univeral hu,an values. he taught us abiut the behaviour of people regarding diffferent problems of the society. she taught us aboout the growing problem of depression among youngsters these days sand also gave us solutions to slove these. she said us to categorised the workds we do in a day and said us to categorised the works i=on the basis of physical help, right understanding and relation ship. this introspection helped us to commit changes in our daily schedlue so that we can get the maximum output of the day
+
+
 
 
 
