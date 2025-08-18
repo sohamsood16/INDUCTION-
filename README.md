@@ -12,4 +12,10 @@
 
 Thewn came upon the stage dean of acedmics AKSHAY GIRDHAR sir he made us aware about the acedmics of the clooege, the curiculam and the examinations held in our college. He ensured us his full support so that we dont feel alinenated and get mixed into the llege smoothly.Then HOD OF STUDENT WELFARE DEMPARTMENT addressed us and soothed us of all the queires we had in our minds.Then came upon stage our principle  SEHAJPAL SINGH JI he addressed the new batch of all the opportunities that we could get if we worked hard and motivated us to give our best and enjoy the 4 years journy.Then came upon the stage  KS MAAN sir he is HOD of IT deparment at GNDEC. He enlighted us abuot the course and made us clear thatthere isnt andfy difference btw the it and cse departments. also we got toknow that oyr first sem was going to be held undere the deparment of applied scienced 
 
+After this came upo the stage Er.RAVINDER GARG he was the chief guest also the chief engineer of muncipal corporation ludhiana also he was an alumini of GNDEC LDH. He made us aware about the legacy of the college and motivated us too. Also the SDM officer of ludhiana came to adress the new joinees as he was also an aluminai of this college.
+
+Following this we had our class and deparmental visit where Proff. Goldendeep kaur addressed us along with Proff Maninder kaur, they told us about the acedmics of the college and the marking schemes also the sujects we are going to study and many more. Then we visited our labs and after this our day ended on a loving note....
+
+##DAY:- 2
+
 
