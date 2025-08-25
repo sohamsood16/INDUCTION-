@@ -33,6 +33,7 @@ Following this we had an expert lecture by priya darshani maam about the univera
 
 ###### day 4
 
+the day commenced with a positive vibe with the first lecture of chemistry by prff rajvir kaur she told us about the curicluam and the exam pattern and also she motivated us for the adventuru journey abhead and also said us to focous on the skill anlong with focusing on the aceddmics.the was a peer to peer class by taranpreet maam about the programing and  she taught us about the basics of prg+ograming anlso taunght about about the college . we were free from here by 11:30 and then we had our break. after the break we had an session with priya darshani maam based on the univesal human values. she taught us tha
 
 
 
