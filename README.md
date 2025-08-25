@@ -36,6 +36,43 @@ Following this we had an expert lecture by priya darshani maam about the univera
 the day commenced with a positive vibe with the first lecture of chemistry by prff rajvir kaur she told us about the curicluam and the exam pattern and also she motivated us for the adventuru journey abhead and also said us to focous on the skill anlong with focusing on the aceddmics.the was a peer to peer class by taranpreet maam about the programing and  she taught us about the basics of prg+ograming anlso taunght about about the college . we were free from here by 11:30 and then we had our break. after the break we had an session with priya darshani maam based on the univesal human values. she taught us that Universal human values (UHV) form the foundation for fostering a holistic, ethical, and meaningful life, particularly in the context of college education. These values—truth, love, compassion, respect, responsibility, non-violence, and justice—are timeless principles that transcend cultural, religious, and geographical boundaries. In colleges, UHV is often integrated into the curriculum to encourage students to explore their inner selves, understand their purpose, and develop a sense of interconnectedness with others and the environment. The goal is to cultivate not just academic excellence but also emotional intelligence, ethical decision-making, and social responsibility. Through UHV, students learn to align their thoughts, actions, and aspirations with values that promote harmony, empathy, and sustainable living. This education helps them navigate personal and professional challenges with integrity and contribute positively to society. this day also ended on a good note with a new hope for the next day.
 
 
+###### day 5
+
+## 🧮 ENGLISH Lecture
+- **Time:** 9:30 AM – 10:30 AM  
+- **Venue:** Room No. F-108  
+- **Professor:** Prof. **Aastik**  
+- **Remarks:** First lecture of the day, fresh mind = best time for maths.  
+
+---
+
+## ⚡ BEEE (Basic Electrical & Electronics Engineering)
+- **Time:** 10:30 AM – 11:30 AM  
+- **Venue:** Room No. F-109  
+- **Professor:** Prof. **Harpreet Kaur (EE)**  
+- **Remarks:** Foundation lecture on circuits — important for lab work later.  
+
+---
+
+## 🧮 Mathematics Lecture (Shared with CSE-E)
+- **Time:** 10:30 AM – 11:30 AM  
+- **Venue:** ME Seminar Hall  
+- **Professor:** Prof. **Rajbir Kaur**  
+- **Remarks:** Double maths back-to-back → revise the same evening to avoid pile-up.  
+
+---
+
+## ⚗️ Chemistry Lecture
+- **Time:** 11:30 AM – 12:30 PM  
+- **Venue:** Room No. F-109  
+- **Professor:** Prof. **Ranvir Kaur (EE)**  
+- **Remarks:** Basics of chemistry in engineering — carry your notes.  
+
+---
+
+✨ **Pro-Tip for the Day:**  
+Since you’re getting **2 maths lectures + chemistry together**, keep a **separate notebook for practice problems** and revise in the evening. This way, you’ll stay ahead and avoid last-minute stress before exams.  
+
 
 
 
