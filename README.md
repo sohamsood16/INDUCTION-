@@ -75,6 +75,10 @@ Since you’re getting **2 maths lectures + chemistry together**, keep a **separ
 
 
 
+###### day 6
+ tjis day we had an beee lecture from 9:30 to 10:30 after that we had one more peer to peer class by taran maam of coding and after break we went to auditorium fro an interactive session,.we had a session by Sr. Guru Charan Singh Garewal, a member of the NSET Trust. He began by mentioning the name of the college and also highlighted the importance of remembering the name of our parents, village, and country with pride. He emphasized that it should be more of a conversation rather than a formal speech, making the session interactive. He spoke about education as a bridge that connects us to opportunities and growth. According to him, a good organization should never treat education as a business, but as a service to society. He highlighted the value of dedicated professors in shaping students’ lives and concluded by reminding us that one should never look for shortcuts or “Canada without study,” meaning success has no substitute for hard work and learning. afetr this we had an introduction session of cml club by lakhwinder sir and he also told us about the syawam naptel portal and also asked us to join one of the course
+
+
 
 
 
