@@ -58,7 +58,15 @@ the day commenced with a positive vibe with the first lecture of chemistry by pr
 - **Time:** 10:30 AM – 11:30 AM  
 - **Venue:** ME Seminar Hall  
 - **Professor:** Prof. **Rajbir Kaur**  
-- **Remarks:** Double maths back-to-back → revise the same evening to avoid pile-up.  
+- **Remarks:** Double maths back-to-back → revise the same evening to avoid pile-up.
+
+
+
+
+
+########### day 7 
+
+this day first we had an introductory lecture of amit kamra sir who is the head of the digital marketing club he displayed his 
 
 ---
 
